@@ -2,7 +2,7 @@
 
 ## 🎤 Презентация
 [🔗 Ссылка на презентацию в Canva](https://www.canva.com/design/DAGjraYmUq4/-COYvfWRdag3ecPrPZDOnw/view?utm_content=DAGjraYmUq4&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h1290f01dde)  
-[▶️ Смотреть на YouTube](https://youtu.be/m8QmRCFuSa4)
+[🔴 Смотреть на YouTube](https://youtu.be/m8QmRCFuSa4)
 
 ## 📌 Задачи
 
